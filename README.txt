@@ -1,1 +1,1 @@
-预览效果:https://SUIFENGQISHI.github.io/love/
+预览效果:https://suifengqishi.github.io/foryou/
