@@ -1,2 +1,1 @@
-# foryou
-none
+https://suifengqishi.github.io/foryou/
